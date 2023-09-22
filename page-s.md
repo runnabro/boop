@@ -1,3 +1,0 @@
-# Page S
-
-Help
